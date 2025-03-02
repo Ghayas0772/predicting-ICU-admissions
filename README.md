@@ -14,4 +14,4 @@ Data Science Certification
 🔹 Explore my projects in data analysis, visualization, and machine learning here.
 Please if need more informaiton to contact me via 
 ✉️ ghayas0772@gmail.com
-🔗 LinkedIn | GitHub
+🔗 www.linkedin.com/in/ghayasudin-ghayas/
